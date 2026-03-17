@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CARK020225MNLSMTA7
+CARK020225MNLSMTA7
